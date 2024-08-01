@@ -25,7 +25,6 @@ I’m Richards Louis, the Founder & CEO of **[Doifoo](https://doifoo.com)**, whe
 - **📫 How to Reach Me:**  
   - Email: [richards@doifoo.com](mailto:richards@doifoo.com)
   - LinkedIn: [Richards Louis](https://linkedin.com/in/richardslouis)
-  - [Personal Website](https://richardslouis.com)
 
 - **😄 Pronouns:** He/Him
 
