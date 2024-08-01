@@ -23,7 +23,7 @@ I’m Richards Louis, the Founder & CEO of **[Doifoo](https://doifoo.com)**, whe
   - Anything that pushes the boundaries of travel technology
 
 - **📫 How to Reach Me:**  
-  - Email: [richards@doifoo.com](mailto:richards@doifoo.com)
+  - Email: [richardslouis@doifoo.com](mailto:richardslouis@doifoo.com)
   - LinkedIn: [Richards Louis](https://linkedin.com/in/richardslouis)
 
 - **😄 Pronouns:** He/Him
