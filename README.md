@@ -1,4 +1,4 @@
-To create a compelling GitHub README file for your profile, you'll want to provide information that not only tells people about your skills and interests but also invites engagement and collaboration. Here's a customized version based on your profile and current activities:
+R I C H A R D S  L O U I S'  G I T
 
 ---
 
