@@ -1,4 +1,4 @@
-R I C H A R D S  L O U I S'  G I T
+R I C H A R D S - L O U I S' - G I T
 
 ---
 
